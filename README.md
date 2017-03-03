@@ -6,3 +6,8 @@
 - [Alberto Martinez](https://github.com/belberus)
 - [Pablo Viñuales](https://github.com/strummerTFIU)
 - [Carlos Tolon](https://github.com/ctolon22)
+
+## Resultados: 
+- Posición 2 en el HUB de Zaragoza.
+- Posicin 19 de España.
+- Posición 674 Mundial.
