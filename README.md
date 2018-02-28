@@ -9,5 +9,5 @@
 
 ## Resultados: 
 - Posición 2 en el HUB de Zaragoza.
-- Posicin 19 de España.
+- Posición 19 de España.
 - Posición 674 Mundial.
